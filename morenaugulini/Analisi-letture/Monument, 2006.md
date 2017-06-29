@@ -53,8 +53,8 @@ Cosa succederebbe, infine, se venisse data, prima dell’accesso del visitatore,
      
 •	*Au Panthéon  JR* [+](http://www.jr-art.net/projects/inside-out-au-pantheon)<br>
 ![gdocP5](http://i.imgur.com/fck1fyo.jpg)<br>
-L'artista francese JR termina la sua installazione “Au Panthéon” al Panthéon di Parigi, un tempio laico che contiene i resti di illustri
-e storici cittadini francesi. Centinaia di ritratti in bianco e nero raccolti nel mese di marzo installati formando un collage che ricopre pavimento e parte del soffitto del tempio. 
+L'artista francese JR crea la sua installazione “Au Panthéon” al Panthéon di Parigi, un tempio laico che contiene i resti di illustri
+e storici cittadini francesi. Centinaia di ritratti in bianco e nero raccolti ed installati formando un collage che ricopre pavimento e parte del soffitto del tempio. 
     
  
 •	*Memoriale per gli ebrei assassinati d'Europa* [+](https://it.wikipedia.org/wiki/Memoriale_per_gli_ebrei_assassinati_d%27Europa)<br> 
@@ -64,13 +64,13 @@ e storici cittadini francesi. Centinaia di ritratti in bianco e nero raccolti ne
 
 •	*Maurizio Mochetti, Palle, 1988* [+](http://www.mauriziomochetti.it/portfolio/palle/)<br>
 ![gdocP5](http://i.imgur.com/ZPiLi0N.jpg)<br>
-Una linea di luce laser è proiettata lungo un perimetro orizzontalmente. Sfere di diverse dimensioni sono disposte su di un piano all’interno dell’area perimetrale e intercettano la luce frammentando la proiezione della linea di luce laser.
+Una linea di luce laser è proiettata lungo un perimetro orizzontalmente. Sfere di diverse dimensioni sono disposte su un piano all’interno dell’area perimetrale ed intercettano la luce frammentando la proiezione della linea.
 
 
 
 •	*Installazione cinetica al World Expo Shanghai nel 2010 in China.* [+](http://www.notcot.org/post/34651/Video-of-FTSIs-Ball-Grid-Array-kinetic-installation-in-/)<br>
 ![gdocP5](http://i.imgur.com/GfPpGwJ.jpg)<br>
-Una linea di luce laser è proiettata lungo un perimetro orizzontalmente. Sfere di diverse dimensioni sono disposte su di un piano all’interno dell’area perimetrale e intercettano la luce frammentando la proiezione della linea di luce laser.
+
 
 
 •	*BMW Kinetic sculpture* [+](http://www.coolhunting.com/culture/bmw-kinetic-scu)<br>
